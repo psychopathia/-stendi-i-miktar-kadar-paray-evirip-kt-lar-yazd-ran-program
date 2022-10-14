@@ -1,0 +1,1 @@
+# -stendi-i-miktar-kadar-paray-evirip-kt-lar-yazd-ran-program
